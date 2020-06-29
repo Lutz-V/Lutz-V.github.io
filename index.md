@@ -13,3 +13,5 @@ Beim Radiohören höre ich fast nur moderne Musik, zuhause habe ich dann größt
 
 Es gibt folgendes Zitat: 
 > Der Mensch lebt nicht vom Brot allein
+
+![Bild](https://www.bildersuche.org/bilder/lizenzfreie-kostenlose-bilder.jpg)
