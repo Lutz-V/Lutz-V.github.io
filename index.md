@@ -10,3 +10,6 @@ Beim Radiohören höre ich fast nur moderne Musik, zuhause habe ich dann größt
 * mit Überraschungen
 * Thema wiederholt sich
 * Item Tempowechsel
+
+Es gibt folgendes Zitat: 
+> Der Mensch lebt nicht vom Brot allein
