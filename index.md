@@ -5,8 +5,8 @@ Beim Radiohören höre ich fast nur moderne Musik, zuhause habe ich dann größt
 80er bis 2010.
 
 ## Schwerpunkte:
-1. melodisch
-2. klangvoll
-3. mit Überraschungen
-4. Thema wiederholt sich
-5. Tempowechsel
+1. Item melodisch
+2. Item klangvoll
+3. Item mit Überraschungen
+4. Item Thema wiederholt sich
+5. Item Tempowechsel
